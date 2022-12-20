@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @abushaimme
+- 👀 I’m interested in **learning something new**
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me https://www.linkedin.com/in/abushaim
+
